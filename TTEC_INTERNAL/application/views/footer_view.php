@@ -1,0 +1,1 @@
+<H2>Copyright&copy; by Yudistira Yanuar Rizki Hermawan. All Right Serve.</H2>
